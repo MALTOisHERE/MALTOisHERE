@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MALTOisHERE
 - 👀 I’m interested in Coding and Hacking.
-- 🌱 I’m currently learning Network, security and computer system.
+- 🌱 I’m currently learning Network, Security and Computer Systems.
 - 💞️ I’m looking to collaborate in Love hhhhh JK !
 - 📫 How to reach me "mohammed.ouaarab@gmail.com"
 
