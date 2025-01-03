@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mohamed AIT OUAARAB.
 - 👀 I’m interested in Coding and Hacking.
-- 🌱 I’m currently learning Network, Security and Computer Systems.
+- 🌱 I’m currently learning Information Systems Security.
 - 💞️ I’m looking to collaborate in Love hahahahaha JK !
 - 📫 How to reach me "mohamed.aitouaarab@uit.ac.ma".
 
