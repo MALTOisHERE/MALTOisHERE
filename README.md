@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and Hacking.
 - 🌱 I’m currently learning Information Systems Security.
 - 💞️ I’m looking to collaborate in Love hahahahaha JK !
-- 📫 How to reach me "mohamed.aitouaarab@uit.ac.ma".
+- 📫 How to reach me "contact@malto.icu".
 
 <!---
 MALTOisHERE/MALTOisHERE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
