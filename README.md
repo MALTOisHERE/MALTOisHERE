@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate in Love hahahahaha JK !
 - 📫 How to reach me "contact@malto.icu".
   
-![Adobe Express - Cyber_Security_Logo_Animation_For_Portfolio](https://github.com/user-attachments/assets/cd56b93a-d3bf-4b44-b7e5-3f883e633350)
+![Adobe Express - df55eac4-a8ee-4eaa-b237-a95f7816a7f5](https://github.com/user-attachments/assets/7ee82f80-e4b3-4672-ba10-b254d1df1a13)
 
 <!---
 MALTOisHERE/MALTOisHERE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
