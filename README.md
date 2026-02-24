@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mohamed AIT OUAARAB.
 - 👀 I’m interested in Coding and Hacking.
-- 🌱 I’m currently learning Information Systems Security.
+- 🌱 I’m currently working as a Cybersecurity Engineer.
 - 💞️ I’m looking to collaborate in Love hahahahaha JK !
 - 📫 How to reach me "hey@malto.icu".
 - 🌐 Website "[malto.icu](https://malto.icu)".
